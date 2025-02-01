@@ -11,5 +11,4 @@ some files in this repository are missing (so much files i cant upload one by on
 # also make sure to join my server; https://discord.gg/zeh9FacNBy
 
 ## _lxzp#0 forced the devs to leak it (no i did not get it from him)
-also please DWC (deal with caution) while interacting with "lxzp";
-![image](https://github.com/user-attachments/assets/1bf046cb-5eb3-40fa-8cb6-771a546dcf80)
+![image](https://github.com/user-attachments/assets/4dcfc562-b507-4b48-8788-65d8e93d1fef)
